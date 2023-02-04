@@ -1,0 +1,1 @@
+keybind for davinchi resolve
